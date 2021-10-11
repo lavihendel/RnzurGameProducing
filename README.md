@@ -1,5 +1,5 @@
-# RnzurGameProducing
-# This is a suggest of producing a TM new game.
+# RnzurGamesProducing TraffiCube
+ This is a suggest of producing and marketing a new game.
 It is depanded in cooperating whit an business marketing company.
 Like my this company should be under the authority and work according to the israely low 
 The Trademark should include all phisical or digital producing that have a connection to the basic game idea .
