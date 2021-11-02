@@ -1,4 +1,4 @@
-# RnzurGamesProducing TraffiCube
+# RnzurGamesProducing 
  This is a suggest of producing and marketing a new game.
 It is depanded in cooperating whit an business marketing company.
 Like my this company should be under the authority and work according to the israely low 
