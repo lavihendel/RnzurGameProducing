@@ -1,3 +1,4 @@
-# RnzurGameProducing
-Rnzur Business Vision: This is my suggest of producing and marketing a new game. The matherial producing needs cooperating of a business marketing company. Like me, an israely citizen, the manufactor company need to be under a legal authority and works according to international trademark low that supervise all phisical or digital producing elements of the game idea. Owning of the Idea is a civil right allthought the publishing and presenting of it on this git or other media. By signing a format of agreement , the rights of the game producing would be set by a financial specific profit. of any of continious producing
-
+# HeartGameProducing
+The Business Vision: This is my testing of marketing a new game. The realistic foorm needs cooperating of a known business marketing company. 
+I am a israely citizen, that looking for cooperating with a trademarked company that able to execute both digital and a phisical game.
+I willing to share Owning of the Idea rights in this git or other media. 
